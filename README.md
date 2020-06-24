@@ -1,1 +1,1 @@
-xin chào
+xin chào. mình là Bằng
